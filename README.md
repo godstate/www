@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://3332.gq">3332.gq</a></strong><br>
-<strong><a href="http://2.gp/5555">2.gp/5555</a></strong><br>
-<strong><a href="http://x.co/2777">x.co/2777</a></strong><br>
+<strong><a href="http://4455.gq">4455.gq</a></strong><br>
+<strong><a href="http://2.gp/pg">2.gp/pg</a></strong><br>
+<strong><a href="http://x.co/2227">x.co/2227</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R1IKh7T" rel="nofollow">入口</a>
-      <a href="http://219.85.108.238/1" rel="nofollow">入口</a>
-      <a href="http://hjbfyz.gmarenaq.ga/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://hjbfyz.gmarenaq.ga/70ydtw" rel="nofollow">入口</a>
-      <a href="http://hjbfyz.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://hjbfyz.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://hjbfyz.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
-      <a href="http://hjbfyz.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://hjbfyz.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://61.228.217.213/1" rel="nofollow">入口</a>
+      <a href="http://ymopwhtw.gpzeukry.ml/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://ymopwhtw.gpzeukry.ml/70ydtw" rel="nofollow">入口</a>
+      <a href="http://ymopwhtw.gpzeukry.ml/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://ymopwhtw.gpzeukry.ml/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://ymopwhtw.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://ymopwhtw.gpzeukry.ml/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://ymopwhtw.gpzeukry.ml/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R1IKh2j" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R1IKhGA" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R1IKhcr" rel="nofollow">无界浏览</a></p>
-<p><a href="http://hjbfyz.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://hjbfyz.gmarenaq.ga/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://hjbfyz.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://ymopwhtw.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://ymopwhtw.gpzeukry.ml/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://ymopwhtw.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R1IKPs4">三退自救1</a></p>
-<p><a href="http://hjbfyz.gmarenaq.ga/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://ymopwhtw.gpzeukry.ml/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R1IKP3l" rel="nofollow">网门视频1</a></p>
-<p><a href="http://spckxc.fyqta.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://zuwzo.ccqpce.ml" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
@@ -48,15 +48,15 @@
 <br>
 <p><strong>聚缘阁</strong></p>
 <p><a href="https://github.com/hao369/a/raw/master/j8.apk">聚缘阁代理安卓版</a></p>
-<p><a href="http://wh.bygg.tk/9.html" rel="nofollow">聚缘阁视频网</a></p>
+<p><a href="http://vc.654e.gq/9.html" rel="nofollow">聚缘阁视频网</a></p>
 <p><a href="http://ju13.521j.cf" rel="nofollow">聚缘阁一站</a></p>
 <p><a href="https://jyg888.98uz.ga" rel="nofollow">聚缘阁二站</a></p>
-<p><a href="http://wh.bygg.tk/524/?3625554" rel="nofollow">动态网</a></p>
-<p><a href="http://wh.bygg.tk/524/?id=8" rel="nofollow">退党网</a></p>
-<p><a href="http://wh.bygg.tk/524/?id=7" rel="nofollow">大纪元</a></p>
-<p><a href="http://wh.bygg.tk/524/?id=5" rel="nofollow">新唐人</a></p>
-<p><a href="http://wh.bygg.tk/524/?id=3" rel="nofollow">明慧网</a></p>
-<p><a href="http://wh.bygg.tk/524/?id=15" rel="nofollow">法轮大法</a></p>
+<p><a href="http://vc.654e.gq/524/?3625554" rel="nofollow">动态网</a></p>
+<p><a href="http://vc.654e.gq/524/?id=8" rel="nofollow">退党网</a></p>
+<p><a href="http://vc.654e.gq/524/?id=7" rel="nofollow">大纪元</a></p>
+<p><a href="http://vc.654e.gq/524/?id=5" rel="nofollow">新唐人</a></p>
+<p><a href="http://vc.654e.gq/524/?id=3" rel="nofollow">明慧网</a></p>
+<p><a href="http://vc.654e.gq/524/?id=15" rel="nofollow">法轮大法</a></p>
 <td align="center"><a target="_blank" href="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
   </tr>
   <tr>
