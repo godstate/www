@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://aaab.gq">aaab.gq</a></strong><br>
-<strong><a href="http://2.gp/gg">2.gp/gg</a></strong><br>
-<strong><a href="http://x.co/3338">x.co/3338</a></strong><br>
+<strong><a href="http://bbb2.gq">bbb2.gq</a></strong><br>
+<strong><a href="http://2.gp/3333">2.gp/3333</a></strong><br>
+<strong><a href="http://x.co/2225">x.co/2225</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R1IKh7T" rel="nofollow">入口</a>
-      <a href="http://219.85.108.224/1" rel="nofollow">入口</a>
-      <a href="http://xdchex.gmarenaq.ga/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://xdchex.gmarenaq.ga/70ydtw" rel="nofollow">入口</a>
-      <a href="http://xdchex.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://xdchex.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://xdchex.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
-      <a href="http://xdchex.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://xdchex.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://61.228.217.213/1" rel="nofollow">入口</a>
+      <a href="http://ffieet.psvdhgqa.ml/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://ffieet.psvdhgqa.ml/70ydtw" rel="nofollow">入口</a>
+      <a href="http://ffieet.psvdhgqa.ml/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://ffieet.psvdhgqa.ml/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://ffieet.psvdhgqa.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://ffieet.psvdhgqa.ml/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://ffieet.psvdhgqa.ml/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R1IKh2j" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R1IKhGA" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R1IKhcr" rel="nofollow">无界浏览</a></p>
-<p><a href="http://xdchex.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://xdchex.gmarenaq.ga/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://xdchex.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://ffieet.psvdhgqa.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://ffieet.psvdhgqa.ml/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://ffieet.psvdhgqa.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R1IKPs4">三退自救1</a></p>
-<p><a href="http://xdchex.gmarenaq.ga/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://ffieet.psvdhgqa.ml/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R1IKP3l" rel="nofollow">网门视频1</a></p>
-<p><a href="http://lcsjzhim.gdeetuiu.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://ysety.ypgwcie.gq" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
@@ -57,6 +57,32 @@
 <p><a href="http://we3.521f.cf/524/?id=5" rel="nofollow">新唐人</a></p>
 <p><a href="http://we3.521f.cf/524/?id=3" rel="nofollow">明慧网</a></p>
 <p><a href="http://we3.521f.cf/524/?id=15" rel="nofollow">法轮大法</a></p>
+<td align="center"><a target="_blank" href="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
+  </tr>
+  <tr>
+    <td align="center">网门<br>
+      免翻墙，一键浏览全球精粹资源<br>
+      头条，影视，音乐，书刊，直播<br>
+      安全，稳定，高速，及时，便利<br>
+    </td>
+  </tr><tr>
+    <td align="center">请尝试不同入口，进入动态网址<br>      
+      <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/ogate/show.htm?from=852" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=852" rel="nofollow">入口</a><br>
+      <a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
+      微信如提示停止访问该网页，须<br>
+      先点击右上角，选择浏览器打开<br>
+    </td>
+  </tr>
+  <tr>
+    <td align="center">
+      下载网门安卓版，更快，更方便<br><a href="https://raw.githubusercontent.com/oGate2/up/master/oGate.apk" rel="nofollow">https://git.io/ogatea2</a><br>
 <td align="center"><a target="_blank" href="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
   </tr>
   <tr>
