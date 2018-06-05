@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://8999.cf">8999.cf</a></strong><br>
-<strong><a href="http://2.gp/7777">2.gp/7777</a></strong><br>
-<strong><a href="http://x.co/2888">x.co/2888</a></strong><br>
+<strong><a href="http://3332.cf">3332.cf</a></strong><br>
+<strong><a href="http://2.gp/dd">2.gp/dd</a></strong><br>
+<strong><a href="http://x.co/9996">x.co/9996</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R1m3YDz" rel="nofollow">入口</a>
-      <a href="http://219.85.108.154/1" rel="nofollow">入口</a>
-      <a href="http://ixwyso.izrtcsf.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://ixwyso.izrtcsf.gq/70ydtw" rel="nofollow">入口</a>
-      <a href="http://ixwyso.izrtcsf.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://ixwyso.izrtcsf.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://ixwyso.izrtcsf.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://ixwyso.izrtcsf.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://ixwyso.izrtcsf.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://219.85.108.183/1" rel="nofollow">入口</a>
+      <a href="http://cvgfhgzu.gmarenaq.ga/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://cvgfhgzu.gmarenaq.ga/70ydtw" rel="nofollow">入口</a>
+      <a href="http://cvgfhgzu.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://cvgfhgzu.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://cvgfhgzu.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
+      <a href="http://cvgfhgzu.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://cvgfhgzu.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R1m3TbU" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R1m3TSJ" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R1m3TWI" rel="nofollow">无界浏览</a></p>
-<p><a href="http://ixwyso.izrtcsf.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://ixwyso.izrtcsf.gq/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://ixwyso.izrtcsf.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://cvgfhgzu.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://cvgfhgzu.gmarenaq.ga/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://cvgfhgzu.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R1m3Yuc">三退自救1</a></p>
-<p><a href="http://ixwyso.izrtcsf.gq/szmst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://cvgfhgzu.gmarenaq.ga/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R1m3YTv" rel="nofollow">网门视频1</a></p>
-<p><a href="http://lwdhxvwz.hghdert.ml" rel="nofollow">网门视频2</a></p>
+<p><a href="http://dlxqham.qicozx.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
