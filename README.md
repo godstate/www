@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://aaa2.ga">aaa2.ga</a></strong><br>
-<strong><a href="http://2.gp/3333">2.gp/3333</a></strong><br>
-<strong><a href="http://x.co/3666">x.co/3666</a></strong><br>
+<strong><a href="http://6665.ga">6665.ga</a></strong><br>
+<strong><a href="http://2.gp/pg">2.gp/pg</a></strong><br>
+<strong><a href="http://x.co/4445">x.co/4445</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R1gJ5XG" rel="nofollow">入口</a>
-      <a href="http://219.85.105.35/1" rel="nofollow">入口</a>
-      <a href="http://curpxm.gpzeukry.ml/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://curpxm.gpzeukry.ml/70ydtw" rel="nofollow">入口</a>
-      <a href="http://curpxm.gpzeukry.ml/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://curpxm.gpzeukry.ml/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://curpxm.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
-      <a href="http://curpxm.gpzeukry.ml/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://curpxm.gpzeukry.ml/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://219.85.105.98/1" rel="nofollow">入口</a>
+      <a href="http://jrprti.gcashj.ml/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://jrprti.gcashj.ml/70ydtw" rel="nofollow">入口</a>
+      <a href="http://jrprti.gcashj.ml/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://jrprti.gcashj.ml/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://jrprti.gcashj.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://jrprti.gcashj.ml/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://jrprti.gcashj.ml/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R1gJ5O7" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R1gJ58T" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R1gJ5Bl" rel="nofollow">无界浏览</a></p>
-<p><a href="http://curpxm.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://curpxm.gpzeukry.ml/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://curpxm.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://jrprti.gcashj.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://jrprti.gcashj.ml/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://jrprti.gcashj.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R1gJ5tn">三退自救1</a></p>
-<p><a href="http://curpxm.gpzeukry.ml/szmst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://jrprti.gcashj.ml/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R1gJ5ht" rel="nofollow">网门视频1</a></p>
-<p><a href="http://bouzieu.rmhdqmhj.ml" rel="nofollow">网门视频2</a></p>
+<p><a href="http://zvtfcgds.qulyn.ml" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
