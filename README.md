@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://ggg3.ga">ggg3.ga</a></strong><br>
-<strong><a href="http://2.gp/gg">2.gp/gg</a></strong><br>
-<strong><a href="http://x.co/3322">x.co/3322</a></strong><br>
+<strong><a href="http://ccc2.cf">ccc2.cf</a></strong><br>
+<strong><a href="http://2.gp/7777">2.gp/7777</a></strong><br>
+<strong><a href="http://x.co/2333">x.co/2333</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
-      <a href="http://t.cn/R1FIV2Z" rel="nofollow">入口</a>
-      <a href="http://219.85.104.98/1" rel="nofollow">入口</a>
-      <a href="http://ukrpxa.gpzeukry.ml/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://ukrpxa.gpzeukry.ml/70ydtw" rel="nofollow">入口</a>
-      <a href="http://ukrpxa.gpzeukry.ml/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://ukrpxa.gpzeukry.ml/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://ukrpxa.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
-      <a href="http://ukrpxa.gpzeukry.ml/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://ukrpxa.gpzeukry.ml/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/R1FjzDL" rel="nofollow">入口</a>
+      <a href="http://219.85.104.106/1" rel="nofollow">入口</a>
+      <a href="http://hhabtr.behjsd.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://hhabtr.behjsd.gq/70ydtw" rel="nofollow">入口</a>
+      <a href="http://hhabtr.behjsd.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://hhabtr.behjsd.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://hhabtr.behjsd.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://hhabtr.behjsd.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://hhabtr.behjsd.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
-<p><a href="http://t.cn/R1FIVVo" rel="nofollow">大纪元新闻</a></p>
-<p><a href="http://t.cn/R1FIVCo" rel="nofollow">新唐人视频</a></p>
-<p><a href="http://t.cn/R1FIVdk" rel="nofollow">无界浏览</a></p>
-<p><a href="http://ukrpxa.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://ukrpxa.gpzeukry.ml/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://ukrpxa.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
-<p><a href="http://t.cn/R1FIckq">三退自救1</a></p>
-<p><a href="http://ukrpxa.gpzeukry.ml/szmst" rel="nofollow">三退自救2</a></p>
-<p><a href="http://t.cn/R1FIcn7" rel="nofollow">网门视频1</a></p>
-<p><a href="http://spupmf.fyqta.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://t.cn/R1FjZ2s" rel="nofollow">大纪元新闻</a></p>
+<p><a href="http://t.cn/R1FjZ6x" rel="nofollow">新唐人视频</a></p>
+<p><a href="http://t.cn/R1FjZC1" rel="nofollow">无界浏览</a></p>
+<p><a href="http://hhabtr.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://hhabtr.behjsd.gq/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://hhabtr.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://t.cn/R1FjznH">三退自救1</a></p>
+<p><a href="http://hhabtr.behjsd.gq/szmst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://t.cn/R1FjzlL" rel="nofollow">网门视频1</a></p>
+<p><a href="http://zfgkt.dleebheh.ga" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
