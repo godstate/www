@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://6667.ga">6667.ga</a></strong><br>
-<strong><a href="http://2.gp/gp">2.gp/gp</a></strong><br>
-<strong><a href="http://x.co/3399">x.co/3399</a></strong><br>
+<strong><a href="http://5556.gq">5556.gq</a></strong><br>
+<strong><a href="http://2.gp/44">2.gp/44</a></strong><br>
+<strong><a href="http://x.co/9944">x.co/9944</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/RBhI2vX" rel="nofollow">入口</a>
-      <a href="http://219.85.104.170/1" rel="nofollow">入口</a>
-      <a href="http://lsyhr.gmarenaq.ga/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://lsyhr.gmarenaq.ga/70ydtw" rel="nofollow">入口</a>
-      <a href="http://lsyhr.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://lsyhr.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://lsyhr.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
-      <a href="http://lsyhr.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://lsyhr.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://61.228.213.149/1" rel="nofollow">入口</a>
+      <a href="http://axgopka.behjsd.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://axgopka.behjsd.gq/70ydtw" rel="nofollow">入口</a>
+      <a href="http://axgopka.behjsd.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://axgopka.behjsd.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://axgopka.behjsd.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://axgopka.behjsd.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://axgopka.behjsd.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/RBhI22a" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/RBhI2qC" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/RBhI2M4" rel="nofollow">无界浏览</a></p>
-<p><a href="http://lsyhr.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://lsyhr.gmarenaq.ga/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://lsyhr.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://axgopka.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://axgopka.behjsd.gq/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://axgopka.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/RBhIAg2">三退自救1</a></p>
-<p><a href="http://lsyhr.gmarenaq.ga/szmst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://axgopka.behjsd.gq/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBhIAmX" rel="nofollow">网门视频1</a></p>
-<p><a href="http://mjczluu.nwvwf.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://kdbtshd.glhtvcy.gq" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
