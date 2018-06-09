@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://6667.ga">6667.ga</a></strong><br>
-<strong><a href="http://2.gp/2222">2.gp/2222</a></strong><br>
-<strong><a href="http://x.co/9933">x.co/9933</a></strong><br>
+<strong><a href="http://8889.cf">8889.cf</a></strong><br>
+<strong><a href="http://2.gp/ww">2.gp/ww</a></strong><br>
+<strong><a href="http://x.co/2229">x.co/2229</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/RBZroXL" rel="nofollow">入口</a>
       <a href="http://219.85.107.18/1" rel="nofollow">入口</a>
-      <a href="http://lzexeha.behjsd.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://lzexeha.behjsd.gq/70ydtw" rel="nofollow">入口</a>
-      <a href="http://lzexeha.behjsd.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://lzexeha.behjsd.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://lzexeha.behjsd.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://lzexeha.behjsd.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://lzexeha.behjsd.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://fyrptgj.gcashj.ml/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://fyrptgj.gcashj.ml/70ydtw" rel="nofollow">入口</a>
+      <a href="http://fyrptgj.gcashj.ml/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://fyrptgj.gcashj.ml/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://fyrptgj.gcashj.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://fyrptgj.gcashj.ml/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://fyrptgj.gcashj.ml/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/RBZroNc" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/RBZroYo" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/RBZroEW" rel="nofollow">无界浏览</a></p>
-<p><a href="http://lzexeha.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://lzexeha.behjsd.gq/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://lzexeha.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://fyrptgj.gcashj.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://fyrptgj.gcashj.ml/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://fyrptgj.gcashj.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/RBZroVO">三退自救1</a></p>
-<p><a href="http://lzexeha.behjsd.gq/szmst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://fyrptgj.gcashj.ml/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBZro4a" rel="nofollow">网门视频1</a></p>
-<p><a href="http://ooocoh.qzxgfh.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://zqbrr.nfwawcoy.ml" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
@@ -52,6 +52,7 @@
 <p><strong>聚缘阁</strong></p>
 <p><strong>【公告】代理大升级，全程SSL加密传送，支持youtube视频播放，新唐人视频播放。。。</strong></p>
 <p><a href="https://github.com/hao369/a/raw/master/j8.apk">聚缘阁代理安卓版</a></p>
+<p><a href="http://er31.b98g.ga/tv" rel="nofollow">聚缘阁视频</a></p>
 <p><a href="http://er31.b98g.ga/j2" rel="nofollow">聚缘阁二站</a></p>
 <p><a href="http://er31.b98g.ga/" rel="nofollow">动态网</a></p>
 <p><a href="http://er31.b98g.ga/?id=8" rel="nofollow">退党网</a></p>
