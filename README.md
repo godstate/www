@@ -3,34 +3,34 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://aaa3.cf">aaa3.cf</a></strong><br>
-<strong><a href="http://2.gp/8888">2.gp/8888</a></strong><br>
-<strong><a href="http://x.co/3777">x.co/3777</a></strong><br>
+<strong><a href="http://bbb2.cf">bbb2.cf</a></strong><br>
+<strong><a href="http://2.gp/2222">2.gp/2222</a></strong><br>
+<strong><a href="http://x.co/2299">x.co/2299</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/RBbpVib" rel="nofollow">入口</a>
       <a href="http://61.228.177.50/1" rel="nofollow">入口</a>
-      <a href="http://xhvsdnp.gpzeukry.ml/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://xhvsdnp.gpzeukry.ml/70ydtw" rel="nofollow">入口</a>
-      <a href="http://xhvsdnp.gpzeukry.ml/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://fyuuur.gcashj.ml/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://fyuuur.gcashj.ml/70ydtw" rel="nofollow">入口</a>
+      <a href="http://fyuuur.gcashj.ml/70ip03dw" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://xhvsdnp.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
-      <a href="http://xhvsdnp.gpzeukry.ml/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://xhvsdnp.gpzeukry.ml/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://fyuuur.gcashj.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://fyuuur.gcashj.ml/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://fyuuur.gcashj.ml/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/RBbpVH9" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/RBbpVdY" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/RBbpf2r" rel="nofollow">无界浏览</a></p>
-<p><a href="http://xhvsdnp.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://xhvsdnp.gpzeukry.ml/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://xhvsdnp.gpzeukry.ml/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://xhvsdnp.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://fyuuur.gcashj.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://fyuuur.gcashj.ml/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://fyuuur.gcashj.ml/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://fyuuur.gcashj.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/RBbpV47">三退自救1</a></p>
-<p><a href="http://xhvsdnp.gpzeukry.ml/szmst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://fyuuur.gcashj.ml/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBbpceM" rel="nofollow">网门视频1</a></p>
-<p><a href="http://mjkwnk.dfetjgfj.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://hpmpkf.qunhb.gq" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
