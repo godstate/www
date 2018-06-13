@@ -3,7 +3,7 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://8999.cf">8999.cf</a></strong><br>
+<strong><a href="http://2233.gq">2233.gq</a></strong><br>
 <strong><a href="http://x.co/3336">x.co/3336</a></strong><br>
 <br>
 <strong>动态网</strong>
@@ -29,7 +29,7 @@
 <p><a href="http://t.cn/RB6xiFw">三退自救1</a></p>
 <p><a href="https://d36zieyu0p7xfw.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RB6xiez" rel="nofollow">网门视频1</a></p>
-<p><a href="http://wviydbgl.ghqhhs.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://hmzhmzjg.zmmekuoe.cf" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
