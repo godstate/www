@@ -3,8 +3,8 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://2223.ga">2223.ga</a></strong><br>
-<strong><a href="http://x.co/3332">x.co/3332</a></strong><br>
+<strong><a href="http://bbb3.gq">bbb3.gq</a></strong><br>
+<strong><a href="http://x.co/3337">x.co/3337</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
@@ -29,7 +29,7 @@
 <p><a href="http://t.cn/RBxILXw">三退自救1</a></p>
 <p><a href="https://dnfiil2bczmdo.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBxILcU" rel="nofollow">网门视频1</a></p>
-<p><a href="http://kyimueh.xtwjc.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://prhueeq.prkxmztz.cf" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
