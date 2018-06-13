@@ -3,13 +3,13 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://aaa2.gq">aaa2.gq</a></strong><br>
+<strong><a href="http://2233.gq">2233.gq</a></strong><br>
 <strong><a href="http://x.co/2888">x.co/2888</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/RB6x6PL" rel="nofollow">入口</a>
-      <a href="http://219.85.109.53/1" rel="nofollow">入口</a>
+      <a href="http://219.85.109.140/1" rel="nofollow">入口</a>
       <a href="https://dnfiil2bczmdo.cloudfront.net/70fdtw" rel="nofollow">入口</a><br>
       <a href="https://dnfiil2bczmdo.cloudfront.net/70ydtw" rel="nofollow">入口</a>
       <a href="https://dnfiil2bczmdo.cloudfront.net/70ip03dw" rel="nofollow">入口</a>
@@ -29,7 +29,7 @@
 <p><a href="http://t.cn/RB6xiFw">三退自救1</a></p>
 <p><a href="https://dnfiil2bczmdo.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RB6xiez" rel="nofollow">网门视频1</a></p>
-<p><a href="http://khmzd.ptaijhc.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://pyzwyx.onwnhwjd.ml" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
