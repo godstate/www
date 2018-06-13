@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://ccc2.ga">ccc2.ga</a></strong><br>
-<strong><a href="http://x.co/9996">x.co/9996</a></strong><br>
+<strong><a href="http://6667.ga">6667.ga</a></strong><br>
+<strong><a href="http://x.co/3666">x.co/3666</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/RB64Ayr" rel="nofollow">入口</a>
-      <a href="http://61.228.176.1/1" rel="nofollow">入口</a>
-      <a href="https://dnfiil2bczmdo.cloudfront.net/70fdtw" rel="nofollow">入口</a><br>
-      <a href="https://dnfiil2bczmdo.cloudfront.net/70ydtw" rel="nofollow">入口</a>
-      <a href="https://dnfiil2bczmdo.cloudfront.net/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://61.228.208.92/1" rel="nofollow">入口</a>
+      <a href="https://d36zieyu0p7xfw.cloudfront.net/70fdtw" rel="nofollow">入口</a><br>
+      <a href="https://d36zieyu0p7xfw.cloudfront.net/70ydtw" rel="nofollow">入口</a>
+      <a href="https://d36zieyu0p7xfw.cloudfront.net/70ip03dw" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="https://dnfiil2bczmdo.cloudfront.net/70sdtw" rel="nofollow">入口</a>
-      <a href="https://dnfiil2bczmdo.cloudfront.net/70cdtw" rel="nofollow">入口</a>
-      <a href="https://dnfiil2bczmdo.cloudfront.net/70hdtw" rel="nofollow">入口</a><br>
+      <a href="https://d36zieyu0p7xfw.cloudfront.net/70sdtw" rel="nofollow">入口</a>
+      <a href="https://d36zieyu0p7xfw.cloudfront.net/70cdtw" rel="nofollow">入口</a>
+      <a href="https://d36zieyu0p7xfw.cloudfront.net/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/RB64AcX" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/RB64A6C" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/RB64Aph" rel="nofollow">无界浏览</a></p>
-<p><a href="https://dnfiil2bczmdo.cloudfront.net/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="https://dnfiil2bczmdo.cloudfront.net/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="https://dnfiil2bczmdo.cloudfront.net/mjw" rel="nofollow">明见网</a></p>
-<p><a href="https://dnfiil2bczmdo.cloudfront.net/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="https://d36zieyu0p7xfw.cloudfront.net/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="https://d36zieyu0p7xfw.cloudfront.net/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="https://d36zieyu0p7xfw.cloudfront.net/mjw" rel="nofollow">明见网</a></p>
+<p><a href="https://d36zieyu0p7xfw.cloudfront.net/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/RB64A71">三退自救1</a></p>
-<p><a href="https://dnfiil2bczmdo.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
+<p><a href="https://d36zieyu0p7xfw.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RB64wDk" rel="nofollow">网门视频1</a></p>
-<p><a href="http://fvmodj.spujqlqj.ml" rel="nofollow">网门视频2</a></p>
+<p><a href="http://euctz.hefsaw.cf" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
