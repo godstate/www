@@ -3,13 +3,13 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://4555.cf">4555.cf</a></strong><br>
-<strong><a href="http://x.co/4445">x.co/4445</a></strong><br>
+<strong><a href="http://ggg3.gq">ggg3.gq</a></strong><br>
+<strong><a href="http://x.co/3777">x.co/3777</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/RBiyjWm" rel="nofollow">入口</a>
-      <a href="http://219.85.104.48/1" rel="nofollow">入口</a>
+      <a href="http://219.85.104.100/1" rel="nofollow">入口</a>
       <a href="https://dnfiil2bczmdo.cloudfront.net/70fdtw" rel="nofollow">入口</a><br>
       <a href="https://dnfiil2bczmdo.cloudfront.net/70ydtw" rel="nofollow">入口</a>
       <a href="https://dnfiil2bczmdo.cloudfront.net/70ip03dw" rel="nofollow">入口</a>
@@ -29,7 +29,7 @@
 <p><a href="http://t.cn/RBiyjCT">三退自救1</a></p>
 <p><a href="https://dnfiil2bczmdo.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBiyjb5" rel="nofollow">网门视频1</a></p>
-<p><a href="http://dqhtd.kckplvj.ml" rel="nofollow">网门视频2</a></p>
+<p><a href="http://hahoiva.slmwsjzd.gq" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
