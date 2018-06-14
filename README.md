@@ -3,13 +3,13 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://5556.gq">5556.gq</a></strong><br>
-<strong><a href="http://x.co/4455">x.co/4455</a></strong><br>
+<strong><a href="http://8889.cf">8889.cf</a></strong><br>
+<strong><a href="http://x.co/4445">x.co/4445</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
-      <a href="http://t.cn/RBa3BLT" rel="nofollow">入口</a>
-      <a href="http://219.85.109.53/1" rel="nofollow">入口</a>
+      <a href="http://t.cn/RBSZpXE" rel="nofollow">入口</a>
+      <a href="http://61.228.185.15/1" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/70fdtw" rel="nofollow">入口</a><br>
       <a href="https://d2ufs065aku2e5.cloudfront.net/70ydtw" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/70ip03dw" rel="nofollow">入口</a>
@@ -19,17 +19,17 @@
       <a href="https://d2ufs065aku2e5.cloudfront.net/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
-<p><a href="http://t.cn/RBa3BcC" rel="nofollow">大纪元新闻</a></p>
-<p><a href="http://t.cn/RBa3BiF" rel="nofollow">新唐人视频</a></p>
-<p><a href="http://t.cn/RBa3B9U" rel="nofollow">无界浏览</a></p>
+<p><a href="http://t.cn/RBSZpN0" rel="nofollow">大纪元新闻</a></p>
+<p><a href="http://t.cn/RBSZpjN" rel="nofollow">新唐人视频</a></p>
+<p><a href="http://t.cn/RBSZpRL" rel="nofollow">无界浏览</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/70gqg" rel="nofollow">营救善良</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/70sz" rel="nofollow">神州正道</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/mjw" rel="nofollow">明见网</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/70gsj" rel="nofollow">起诉江泽民</a></p>
-<p><a href="http://t.cn/RBa31YN">三退自救1</a></p>
+<p><a href="http://t.cn/RBSZpI5">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
-<p><a href="http://t.cn/RBa31Np" rel="nofollow">网门视频1</a></p>
-<p><a href="http://diptm.qicozx.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://t.cn/RBSZpyN" rel="nofollow">网门视频1</a></p>
+<p><a href="http://cgsfvqt.mtdbgear.ga" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
