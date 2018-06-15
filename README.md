@@ -5,14 +5,14 @@
 <h2>
 </h2>
 <h2>
-<strong>简易网址</strong>
+<p><strong>简易网址</strong></p>
 </h2>
-<strong><a href="http://bbb2.tk">bbb2.tk</a></strong><br>
-<strong><a href="http://x.co/2299">x.co/2299</a></strong><br>
+<strong><a href="http://ccc3.cf">ccc3.cf</a></strong><br>
+<strong><a href="http://x.co/3388">x.co/3388</a></strong><br>
 <h2>
 </h2>
 <h2>
-<strong>动态网</strong>
+<p><strong>动态网</strong></p>
 </h2>
 <br>
       <a href="http://t.cn/RBCMoEY" rel="nofollow">入口</a>
@@ -37,14 +37,14 @@
 <p><a href="http://t.cn/RBCMoNj">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBCMoiC" rel="nofollow">网门视频1</a></p>
-<p><a href="http://kqxtid.dfetjgfj.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://kanupixe.olodzq.gq" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
 <h2>
 </h2>
 <h2>
-<p><p><strong>下载翻墙软件</strong></p>
+<p><strong>下载翻墙软件</strong></p>
 </h2>
 
 <p><a href="https://git.io/fgp" rel="nofollow">自由门</a></p>
