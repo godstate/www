@@ -6,9 +6,9 @@
 <h2>
 <p><strong>简易网址</strong></p>
 </h2>
-<strong><a href="http://6667.ga">6667.ga</a></strong><br>
-<strong><a href="http://x.co/2226">x.co/2226</a></strong><br>
-<strong><a href="http://http://t.cn/RBon22U">http://t.cn/RBon22U</a></strong><br>
+<strong><a href="http://ccc3.ga">ccc3.ga</a></strong><br>
+<strong><a href="http://x.co/3322">x.co/3322</a></strong><br>
+<strong><a href="http://http://t.cn/RBonUle">http://t.cn/RBonUle</a></strong><br>
 <h2>
 </h2>
 <h2>
@@ -19,10 +19,10 @@
       <a href="http://219.85.108.30/1" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/RBOXphg" rel="nofollow">入口</a>
-      <a href="http://isyoeddz.behjsd.gq/5" rel="nofollow">入口</a>
+      <a href="http://uibarwrg.yspjgjq.gq/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://isyoeddz.behjsd.gq/7" rel="nofollow">入口</a>
-      <a href="http://isyoeddz.behjsd.gq/8" rel="nofollow">入口</a>
+      <a href="http://uibarwrg.yspjgjq.gq/7" rel="nofollow">入口</a>
+      <a href="http://uibarwrg.yspjgjq.gq/8" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/9" rel="nofollow">入口</a><br>
 <h2>
 </h2>
@@ -37,7 +37,7 @@
 <p><a href="http://t.cn/RBOXNDZ">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBOXNuF" rel="nofollow">网门视频1</a></p>
-<p><a href="http://ixrfejh.owenc.ml" rel="nofollow">网门视频2</a></p>
+<p><a href="http://zcvmicw.hvkeamjq.ga" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
