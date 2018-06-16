@@ -6,9 +6,9 @@
 <h2>
 <p><strong>简易网址</strong></p>
 </h2>
-<strong><a href="http://5556.gq">5556.gq</a></strong><br>
-<strong><a href="http://x.co/2777">x.co/2777</a></strong><br>
-<strong><a href="http://http://t.cn/RBondXd">http://t.cn/RBondXd</a></strong><br>
+<strong><a href="http://4455.ga">4455.ga</a></strong><br>
+<strong><a href="http://x.co/3388">x.co/3388</a></strong><br>
+<strong><a href="http://http://t.cn/RBonkxy">http://t.cn/RBonkxy</a></strong><br>
 <h2>
 </h2>
 <h2>
@@ -16,13 +16,13 @@
 </h2>
 <br>
       <a href="https://d2ufs065aku2e5.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://61.228.182.124/1" rel="nofollow">入口</a>
+      <a href="http://219.85.108.55/1" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/RBlKTMA" rel="nofollow">入口</a>
-      <a href="http://csgnus.gpzeukry.ml/5" rel="nofollow">入口</a>
+      <a href="http://aukzcvm.behjsd.gq/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://csgnus.gpzeukry.ml/7" rel="nofollow">入口</a>
-      <a href="http://csgnus.gpzeukry.ml/8" rel="nofollow">入口</a>
+      <a href="http://aukzcvm.behjsd.gq/7" rel="nofollow">入口</a>
+      <a href="http://aukzcvm.behjsd.gq/8" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/9" rel="nofollow">入口</a><br>
 <h2>
 </h2>
@@ -37,7 +37,7 @@
 <p><a href="http://t.cn/RBlKTqN">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBlKTLw" rel="nofollow">网门视频1</a></p>
-<p><a href="http://biiypay.gdeetuiu.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://rveeo.bdcadfdl.ga" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
