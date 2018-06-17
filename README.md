@@ -7,9 +7,9 @@
 <p><strong>简易网址</strong></p>
 </h2>
 <strong><a href="https://git.io/g">git.io/g</a></strong><br>
-<strong><a href="http://6665.cf">6665.cf</a></strong><br>
+<strong><a href="http://8889.cf">8889.cf</a></strong><br>
 <strong><a href="https://git.io/ccc">git.io/ccc</a></strong><br>
-<strong><a href="http://x.co/9996">x.co/9996</a></strong><br>
+<strong><a href="http://x.co/3555">x.co/3555</a></strong><br>
 
 <h2>
 </h2>
@@ -18,13 +18,13 @@
 </h2>
 <br>
       <a href="https://d2ufs065aku2e5.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://219.85.111.18/1" rel="nofollow">入口</a>
+      <a href="http://219.85.111.34/1" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/RBQrkzH" rel="nofollow">入口</a>
-      <a href="http://ybpjk.gpzeukry.ml/5" rel="nofollow">入口</a>
+      <a href="http://pcxaxrqr.gmarenaq.ga/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://ybpjk.gpzeukry.ml/7" rel="nofollow">入口</a>
-      <a href="http://ybpjk.gpzeukry.ml/8" rel="nofollow">入口</a>
+      <a href="http://pcxaxrqr.gmarenaq.ga/7" rel="nofollow">入口</a>
+      <a href="http://pcxaxrqr.gmarenaq.ga/8" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/9" rel="nofollow">入口</a><br>
 <h2>
 </h2>
@@ -39,7 +39,7 @@
 <p><a href="http://t.cn/RBQrDg3">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBQrD8B" rel="nofollow">网门视频1</a></p>
-<p><a href="http://ryjuxplf.wdgerjs.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://axmpmys.lqpauv.cf" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
