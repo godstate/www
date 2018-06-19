@@ -20,13 +20,13 @@
 </h2>
 <br>
       <a href="https://d2ufs065aku2e5.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://219.85.105.128/1" rel="nofollow">入口</a>
+      <a href="http://219.85.105.133/1" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/RBgqXt2" rel="nofollow">入口</a>
-      <a href="http://cygcwny.gcashj.ml/5" rel="nofollow">入口</a>
+      <a href="http://qqdnlxrx.qkwkhtgq.ml/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://cygcwny.gcashj.ml/7" rel="nofollow">入口</a>
-      <a href="http://cygcwny.gcashj.ml/8" rel="nofollow">入口</a>
+      <a href="http://qqdnlxrx.qkwkhtgq.ml/7" rel="nofollow">入口</a>
+      <a href="http://qqdnlxrx.qkwkhtgq.ml/8" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/9" rel="nofollow">入口</a><br>
 <h2>
 </h2>
@@ -41,7 +41,7 @@
 <p><a href="http://t.cn/RBgqXwD">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBgq6kt" rel="nofollow">网门视频1</a></p>
-<p><a href="http://xkdpyhfb.tugtdwdg.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://vhpxkd.yvmjmz.gq" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
