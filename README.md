@@ -17,10 +17,10 @@
       <a href="http://61.228.191.180/1" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/RBF37l7" rel="nofollow">入口</a>
-      <a href="http://chvwwyd.behjsd.gq/5" rel="nofollow">入口</a>
+      <a href="http://bggxbq.gcashj.ml/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://chvwwyd.behjsd.gq/7" rel="nofollow">入口</a>
-      <a href="http://chvwwyd.behjsd.gq/8" rel="nofollow">入口</a>
+      <a href="http://bggxbq.gcashj.ml/7" rel="nofollow">入口</a>
+      <a href="http://bggxbq.gcashj.ml/8" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
 <p><a href="http://t.cn/RBF373D" rel="nofollow">大纪元新闻</a></p>
@@ -33,7 +33,7 @@
 <p><a href="http://t.cn/RBF37Sy">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBF37IL" rel="nofollow">网门视频1</a></p>
-<p><a href="http://zlxpf.owenc.ml" rel="nofollow">网门视频2</a></p>
+<p><a href="http://uwwxx.rpzjp.ml" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
