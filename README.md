@@ -1,21 +1,14 @@
 <td align="center"><a target="_blank" href="https://raw.githubusercontent.com/szzd1/szzd1.github.io/master/1.JPG"><img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG" style="max-width:100%;"></a></td><br>
 <strong>可向 fr45tr@gmail.com 索取用于推广的网址。</strong>
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
-<h3>
-</h3>
 <hr>
 <h3>
 <p><strong>简易网址</strong></p>
 </h3>
-
 <strong>用于电脑： <a href="http://2ccc.cf">2ccc.cf</a></strong><br>
 <strong>用于电脑： <a href="http://x.co/2333">x.co/2333</a></strong><br>
 <strong>用于手机： <a href="https://git.io/g">git.io/g</a></strong><br>
 <strong>用于手机： <a href="https://git.io/ccc">git.io/ccc</a></strong><br>
-
-
-<h3>
-</h3>
 <hr>
 <h3>
 <p><strong>动态网</strong></p>
@@ -23,34 +16,31 @@
       <a href="https://d2ufs065aku2e5.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://219.85.105.145/1" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/3" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/RBkbJJm" rel="nofollow">入口</a>
-      <a href="http://jrqpj.qkwkhtgq.ml/5" rel="nofollow">入口</a>
+      <a href="http://t.cn/RBkSrlj" rel="nofollow">入口</a>
+      <a href="http://zblgy.psvdhgqa.ml/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://jrqpj.qkwkhtgq.ml/7" rel="nofollow">入口</a>
-      <a href="http://jrqpj.qkwkhtgq.ml/8" rel="nofollow">入口</a>
+      <a href="http://zblgy.psvdhgqa.ml/7" rel="nofollow">入口</a>
+      <a href="http://zblgy.psvdhgqa.ml/8" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="http://t.cn/RBkbJo3" rel="nofollow">大纪元新闻</a></p>
-<p><a href="http://t.cn/RBkbJHw" rel="nofollow">新唐人视频</a></p>
-<p><a href="http://t.cn/RBkbJ3z" rel="nofollow">无界浏览</a></p>
+<p><a href="http://t.cn/RBkSrEB" rel="nofollow">大纪元新闻</a></p>
+<p><a href="http://t.cn/RBkSrdF" rel="nofollow">新唐人视频</a></p>
+<p><a href="http://t.cn/RBkSdPu" rel="nofollow">无界浏览</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/70gqg" rel="nofollow">营救善良</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/70sz" rel="nofollow">神州正道</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/mjw" rel="nofollow">明见网</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/70gsj" rel="nofollow">起诉江泽民</a></p>
-<p><a href="http://t.cn/RBkbJ5f">三退自救1</a></p>
+<p><a href="http://t.cn/RBkSrKi">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
-<p><a href="http://t.cn/RBkbJLX" rel="nofollow">网门视频1</a></p>
-<p><a href="http://nfgfowb.dhsiaj.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://t.cn/RBkSrxP" rel="nofollow">网门视频1</a></p>
+<p><a href="http://xhqkn.mtdbgear.ga" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
-<h3>
-</h3>
 <hr>
 <h3>
 <p><strong>下载翻墙软件</strong></p>
 </h3>
-
 <p><a href="https://git.io/fgp" rel="nofollow">自由门</a></p>
 <p><a href="https://git.io/vEJlj rel="nofollow">无界浏览</a></p>
 <p><a href="https://git.io/fgma" rel="nofollow">自由门安卓版</a></p>
@@ -61,11 +51,6 @@
 <p><a href="https://git.io/vA5GO" rel="nofollow">神州正道安卓2.3+（手机版）</a></p>
 <p><a href="https://github.com/bannedbook/fanqiang/wiki">更多翻墙软件</a></p>
 旧版和新版的使用环境不同。旧版适合老机子。<br>
-
-
-<br>
-<h3>
-</h3>
 <hr>
 <h3>
 <p><strong>聚缘阁</strong></p>
