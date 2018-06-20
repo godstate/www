@@ -3,6 +3,7 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <h3>
 </h3>
+<hr>
 <h3>
 <p><strong>简易网址</strong></p>
 </h3>
@@ -15,6 +16,7 @@
 
 <h3>
 </h3>
+<hr>
 <h3>
 <p><strong>动态网</strong></p>
 </h3>
@@ -22,13 +24,14 @@
       <a href="http://219.85.105.132/1" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/RBkbJJm" rel="nofollow">入口</a>
-      <a href="http://iwidzjnk.gmarenaq.ga/5" rel="nofollow">入口</a>
+      <a href="http://snampqf.behjsd.gq/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://iwidzjnk.gmarenaq.ga/7" rel="nofollow">入口</a>
-      <a href="http://iwidzjnk.gmarenaq.ga/8" rel="nofollow">入口</a>
+      <a href="http://snampqf.behjsd.gq/7" rel="nofollow">入口</a>
+      <a href="http://snampqf.behjsd.gq/8" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/9" rel="nofollow">入口</a><br>
 <h3>
 </h3>
+<hr>
 <br>
 <p><a href="http://t.cn/RBkbJo3" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/RBkbJHw" rel="nofollow">新唐人视频</a></p>
@@ -40,12 +43,13 @@
 <p><a href="http://t.cn/RBkbJ5f">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBkbJLX" rel="nofollow">网门视频1</a></p>
-<p><a href="http://folaiu.ptaijhc.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://gbvlrua.paqhvdzv.gq" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
 <h3>
 </h3>
+<hr>
 <h3>
 <p><strong>下载翻墙软件</strong></p>
 </h3>
@@ -68,6 +72,7 @@
 <h3>
 <p><strong>聚缘阁</strong></p>
 </h3>
+<hr>
 <p><strong>【公告】代理大升级，全程SSL加密传送，支持youtube视频、新唐人视频、大纪元视频播放。。。</strong></p>
 <p>聚缘阁代理安卓版已经升级,浏览网页特别快，视频播放支持全屏。。。<a href="https://github.com/dtw9/9/raw/master/201861502.apk">点击下载</a></p>
 <h3>
