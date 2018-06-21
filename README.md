@@ -6,7 +6,7 @@
 <p><strong>简易网址</strong></p>
 </h3>
 <strong>用于电脑： <a href="http://2ccc.cf">2ccc.cf</a></strong><br>
-<strong>用于电脑： <a href="https://git.io/x">git.io/x</a></strong><br>
+<strong>用于电脑： <a href="https://git.io/g">git.io/g</a></strong><br>
 <strong>用于电脑： <a href="http://x.co/2333">x.co/2333</a></strong><br>
 <strong>用于手机： <a href="https://git.io/p">git.io/p</a></strong><br>
 <strong>用于手机： <a href="https://git.io/ooo">git.io/ooo</a></strong><br>
@@ -19,10 +19,10 @@
       <a href="http://219.85.107.165/1" rel="nofollow">入口</a>
       <a href="https://d1db5z1tcimk92.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/RrhKz3A" rel="nofollow">入口</a>
-      <a href="http://xaigd.qkwkhtgq.ml/5" rel="nofollow">入口</a>
+      <a href="http://wedxp.izrtcsf.gq/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://xaigd.qkwkhtgq.ml/7" rel="nofollow">入口</a>
-      <a href="http://xaigd.qkwkhtgq.ml/8" rel="nofollow">入口</a>
+      <a href="http://wedxp.izrtcsf.gq/7" rel="nofollow">入口</a>
+      <a href="http://wedxp.izrtcsf.gq/8" rel="nofollow">入口</a>
       <a href="https://d1db5z1tcimk92.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
 <p><a href="http://t.cn/RrhKzeP" rel="nofollow">大纪元新闻</a></p>
@@ -35,7 +35,7 @@
 <p><a href="http://t.cn/RrhKz8e">三退自救1</a></p>
 <p><a href="https://d1db5z1tcimk92.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RrhKzly" rel="nofollow">网门视频1</a></p>
-<p><a href="http://mxxoubbu.jyhqad.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://iglayfi.kzmobjh.ml" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
