@@ -12,8 +12,8 @@
 <strong>用于电脑： <a href="https://git.io/g">git.io/g</a></strong><br>
 <strong>用于电脑： <a href="http://x.co/2333">x.co/2333</a></strong><br>
 <strong>用于手机： <a href="https://git.io/p">git.io/p</a></strong><br>
-<strong>用于手机： <a href="https://git.io/ooo">git.io/ooo</a></strong><br>
 <strong>用于手机： <a href="https://git.io/ccc">git.io/ccc</a></strong><br>
+<strong>用于手机： <a href="https://git.io/ooo">git.io/ooo</a></strong><br>
 <hr>
 <h3>
 <p><strong>动态网</strong></p>
@@ -22,10 +22,10 @@
       <a href="http://219.85.107.203/1" rel="nofollow">入口</a>
       <a href="https://d1db5z1tcimk92.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/Rr76fEZ" rel="nofollow">入口</a>
-      <a href="http://pymauh.gmarenaq.ga/5" rel="nofollow">入口</a>
+      <a href="http://qbien.gpzeukry.ml/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://pymauh.gmarenaq.ga/7" rel="nofollow">入口</a>
-      <a href="http://pymauh.gmarenaq.ga/8" rel="nofollow">入口</a>
+      <a href="http://qbien.gpzeukry.ml/7" rel="nofollow">入口</a>
+      <a href="http://qbien.gpzeukry.ml/8" rel="nofollow">入口</a>
       <a href="https://d1db5z1tcimk92.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
 <p><a href="http://t.cn/Rr76IvL" rel="nofollow">大纪元新闻</a></p>
@@ -38,7 +38,7 @@
 <p><a href="http://t.cn/Rr76for">三退自救1</a></p>
 <p><a href="https://d1db5z1tcimk92.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/Rr76ftB" rel="nofollow">网门视频1</a></p>
-<p><a href="http://htytd.onwnhwjd.ml" rel="nofollow">网门视频2</a></p>
+<p><a href="http://zdreee.axbiyssi.ml" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
