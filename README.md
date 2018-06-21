@@ -19,10 +19,10 @@
       <a href="http://219.85.107.191/1" rel="nofollow">入口</a>
       <a href="https://d1db5z1tcimk92.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/Rr7UOhw" rel="nofollow">入口</a>
-      <a href="http://kpyhuy.izrtcsf.gq/5" rel="nofollow">入口</a>
+      <a href="http://pycoeal.gcashj.ml/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://kpyhuy.izrtcsf.gq/7" rel="nofollow">入口</a>
-      <a href="http://kpyhuy.izrtcsf.gq/8" rel="nofollow">入口</a>
+      <a href="http://pycoeal.gcashj.ml/7" rel="nofollow">入口</a>
+      <a href="http://pycoeal.gcashj.ml/8" rel="nofollow">入口</a>
       <a href="https://d1db5z1tcimk92.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
 <p><a href="http://t.cn/Rr7UOLR" rel="nofollow">大纪元新闻</a></p>
@@ -35,7 +35,7 @@
 <p><a href="http://t.cn/Rr7U0di">三退自救1</a></p>
 <p><a href="https://d1db5z1tcimk92.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/Rr7U0m5" rel="nofollow">网门视频1</a></p>
-<p><a href="http://ixvnpy.prkxmztz.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://kepwg.gdeetuiu.cf" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
