@@ -19,13 +19,13 @@
 <p><strong>动态网</strong></p>
 </h3>
       <a href="https://d1db5z1tcimk92.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://61.228.213.51/1" rel="nofollow">入口</a>
+      <a href="http://61.228.211.207/1" rel="nofollow">入口</a>
       <a href="https://d1db5z1tcimk92.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/Rrw3jjK" rel="nofollow">入口</a>
-      <a href="http://zveota.qkwkhtgq.ml/5" rel="nofollow">入口</a>
+      <a href="http://hpdqxmu.gpzeukry.ml/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://zveota.qkwkhtgq.ml/7" rel="nofollow">入口</a>
-      <a href="http://zveota.qkwkhtgq.ml/8" rel="nofollow">入口</a>
+      <a href="http://hpdqxmu.gpzeukry.ml/7" rel="nofollow">入口</a>
+      <a href="http://hpdqxmu.gpzeukry.ml/8" rel="nofollow">入口</a>
       <a href="https://d1db5z1tcimk92.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
 <p><a href="http://t.cn/Rrw3jRs" rel="nofollow">大纪元新闻</a></p>
@@ -38,7 +38,7 @@
 <p><a href="http://t.cn/Rrw3jpY">三退自救1</a></p>
 <p><a href="https://d1db5z1tcimk92.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/Rrw3jSy" rel="nofollow">网门视频1</a></p>
-<p><a href="http://tngiwgqd.glhtvcy.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://eswpnlh.dcdfujql.gq" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
