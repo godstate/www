@@ -19,26 +19,26 @@
 <p><strong>动态网</strong></p>
 </h3>
       <a href="https://d8ru1ewfrj329.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://219.85.108.221/1" rel="nofollow">入口</a>
+      <a href="http://219.85.108.238/1" rel="nofollow">入口</a>
       <a href="https://d8ru1ewfrj329.cloudfront.net/3" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/RryVBvU" rel="nofollow">入口</a>
-      <a href="http://qffsyvl.gpzeukry.ml/5" rel="nofollow">入口</a>
+      <a href="http://t.cn/RryM37w" rel="nofollow">入口</a>
+      <a href="http://ytvambm.gpzeukry.ml/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://qffsyvl.gpzeukry.ml/7" rel="nofollow">入口</a>
-      <a href="http://qffsyvl.gpzeukry.ml/8" rel="nofollow">入口</a>
+      <a href="http://ytvambm.gpzeukry.ml/7" rel="nofollow">入口</a>
+      <a href="http://ytvambm.gpzeukry.ml/8" rel="nofollow">入口</a>
       <a href="https://d8ru1ewfrj329.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="http://t.cn/RryVB2W" rel="nofollow">大纪元新闻</a></p>
-<p><a href="http://t.cn/RryVB5n" rel="nofollow">新唐人视频</a></p>
-<p><a href="http://t.cn/RryVB9P" rel="nofollow">无界浏览</a></p>
+<p><a href="http://t.cn/RryM3LL" rel="nofollow">大纪元新闻</a></p>
+<p><a href="http://t.cn/RryM3J8" rel="nofollow">新唐人视频</a></p>
+<p><a href="http://t.cn/RryM3N6" rel="nofollow">无界浏览</a></p>
 <p><a href="https://d8ru1ewfrj329.cloudfront.net/70gqg" rel="nofollow">营救善良</a></p>
 <p><a href="https://d8ru1ewfrj329.cloudfront.net/70sz" rel="nofollow">神州正道</a></p>
 <p><a href="https://d8ru1ewfrj329.cloudfront.net/mjw" rel="nofollow">明见网</a></p>
 <p><a href="https://d8ru1ewfrj329.cloudfront.net/70gsj" rel="nofollow">起诉江泽民</a></p>
-<p><a href="http://t.cn/RryV1gq">三退自救1</a></p>
+<p><a href="http://t.cn/RryMugC">三退自救1</a></p>
 <p><a href="https://d8ru1ewfrj329.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
-<p><a href="http://t.cn/RryV1Ye" rel="nofollow">网门视频1</a></p>
-<p><a href="http://duitmvt.ptaijhc.cf/?from=852" rel="nofollow">网门视频2</a></p>
+<p><a href="http://t.cn/RryMuHG" rel="nofollow">网门视频1</a></p>
+<p><a href="http://ekzjn.qfxsu.gq/?from=852" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
@@ -60,33 +60,6 @@
 <h3>
 <p><strong>聚缘阁</strong></p>
 </h3>
-<tr>
-    <td align="left"><a target="_blank" href="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
-  </tr>
-  <tr>
-    <td align="left">网门<br>
-      免翻墙，一键浏览全球精粹资源<br>
-      头条，影视，音乐，书刊，直播<br>
-      安全，稳定，高速，及时，便利<br>
-    </td>
-  </tr><tr>
-    <td align="left">请尝试不同入口，进入动态网址<br>      
-      <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/ogate/show.htm?from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
-      微信如提示停止访问该网页，须<br>
-      先点击右上角，选择浏览器打开<br>
-    </td>
-  </tr>
-  <tr>
-    <td align="left">
-      下载网门安卓版，更快，更方便<br><a href="https://raw.githubusercontent.com/oGate2/up/master/oGate.apk" rel="nofollow">https://git.io/ogatea2</a><br> </td></tr></table>
 <p><strong>【公告】代理大升级，全程SSL加密传送，支持youtube视频、新唐人视频、大纪元视频播放。。。</strong></p>
 <p>聚缘阁代理安卓版已经升级,浏览网页特别快，视频播放支持全屏。。。<a href="https://github.com/dtw9/9/raw/master/201861502.apk">点击下载</a></p>
 <p>
