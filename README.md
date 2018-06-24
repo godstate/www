@@ -23,10 +23,10 @@
       <a href="http://219.85.104.238/1" rel="nofollow">入口</a>
       <a href="https://d3cgm8ac1vg9rg.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/RrtGnWf" rel="nofollow">入口</a>
-      <a href="http://ijdvc.behjsd.gq/5" rel="nofollow">入口</a>
+      <a href="http://otfwqss.nwrzawk.gq/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://ijdvc.behjsd.gq/7" rel="nofollow">入口</a>
-      <a href="http://ijdvc.behjsd.gq/8" rel="nofollow">入口</a>
+      <a href="http://otfwqss.nwrzawk.gq/7" rel="nofollow">入口</a>
+      <a href="http://otfwqss.nwrzawk.gq/8" rel="nofollow">入口</a>
       <a href="https://d3cgm8ac1vg9rg.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
@@ -44,7 +44,7 @@
 <hr>
 <p><a href="http://t.cn/RrtGnHa" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/RrtGnnW" rel="nofollow">新唐人视频</a></p>
-<p><a href="http://t.cn/RrtUYkS" rel="nofollow">无界浏览</a></p>
+<p><a href="http://t.cn/RrtGnBn" rel="nofollow">无界浏览</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/70gqg" rel="nofollow">营救善良</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/70sz" rel="nofollow">神州正道</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/mjw" rel="nofollow">明见网</a></p>
@@ -52,7 +52,7 @@
 <p><a href="http://t.cn/RrtGn9L">三退自救1</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RrtGnXt" rel="nofollow">网门视频1</a></p>
-<p><a href="http://ygfyvxyx.nfwawcoy.ml/?from=852" rel="nofollow">网门视频2</a></p>
+<p><a href="http://cwheyhj.raiyvno.gq/?from=852" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
