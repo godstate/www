@@ -19,14 +19,14 @@
 <h3>
 <p><strong>动态网</strong></p>
 </h3>
-      <a href="https://d7w76dc4il4sn.cloudfront.net/1" rel="nofollow">入口</a>
+      <a href="https://d3cbj0s3m1m861.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://61.228.213.51/1" rel="nofollow">入口</a>
       <a href="https://d3cgm8ac1vg9rg.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/RrcqJ3e" rel="nofollow">入口</a>
-      <a href="http://rbrdnwup.qkwkhtgq.ml/5" rel="nofollow">入口</a>
+      <a href="http://opidmhyo.psvdhgqa.ml/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://rbrdnwup.qkwkhtgq.ml/7" rel="nofollow">入口</a>
-      <a href="http://rbrdnwup.qkwkhtgq.ml/8" rel="nofollow">入口</a>
+      <a href="http://opidmhyo.psvdhgqa.ml/7" rel="nofollow">入口</a>
+      <a href="http://opidmhyo.psvdhgqa.ml/8" rel="nofollow">入口</a>
       <a href="https://d3cgm8ac1vg9rg.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
@@ -52,7 +52,7 @@
 <p><a href="http://t.cn/RrcqJlM">三退自救1</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RrcqJqx" rel="nofollow">网门视频1</a></p>
-<p><a href="http://ysejox.qfxsu.gq/?from=852" rel="nofollow">网门视频2</a></p>
+<p><a href="http://vjzcrjv.xohwqtdm.ml/?from=852" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
