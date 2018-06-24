@@ -20,13 +20,13 @@
 <p><strong>动态网</strong></p>
 </h3>
       <a href="https://d3gho815dceh3w.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://219.85.104.210/1" rel="nofollow">入口</a>
+      <a href="http://61.228.184.145/1" rel="nofollow">入口</a>
       <a href="https://d3cgm8ac1vg9rg.cloudfront.net/3" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/RrtFUKK" rel="nofollow">入口</a>
-      <a href="http://nimxde.behjsd.gq/5" rel="nofollow">入口</a>
+      <a href="http://t.cn/Rrc7LPJ" rel="nofollow">入口</a>
+      <a href="http://wqcarswb.psvdhgqa.ml/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://nimxde.behjsd.gq/7" rel="nofollow">入口</a>
-      <a href="http://nimxde.behjsd.gq/8" rel="nofollow">入口</a>
+      <a href="http://wqcarswb.psvdhgqa.ml/7" rel="nofollow">入口</a>
+      <a href="http://wqcarswb.psvdhgqa.ml/8" rel="nofollow">入口</a>
       <a href="https://d3cgm8ac1vg9rg.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
@@ -42,17 +42,17 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
 <hr>
-<p><a href="http://t.cn/RrtFUjy" rel="nofollow">大纪元新闻</a></p>
-<p><a href="http://t.cn/RrtFU3L" rel="nofollow">新唐人视频</a></p>
-<p><a href="http://t.cn/RrtFUFr" rel="nofollow">无界浏览</a></p>
+<p><a href="http://t.cn/Rrc7Lqb" rel="nofollow">大纪元新闻</a></p>
+<p><a href="http://t.cn/Rrc7LoS" rel="nofollow">新唐人视频</a></p>
+<p><a href="http://t.cn/Rrc7Lrl" rel="nofollow">无界浏览</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/70gqg" rel="nofollow">营救善良</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/70sz" rel="nofollow">神州正道</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/mjw" rel="nofollow">明见网</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/70gsj" rel="nofollow">起诉江泽民</a></p>
-<p><a href="http://t.cn/RrtFUIF">三退自救1</a></p>
+<p><a href="http://t.cn/Rrc720W">三退自救1</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
-<p><a href="http://t.cn/RrtFU4x" rel="nofollow">网门视频1</a></p>
-<p><a href="http://hyqune.uditzx.gq/?from=852" rel="nofollow">网门视频2</a></p>
+<p><a href="http://t.cn/Rrc72w3" rel="nofollow">网门视频1</a></p>
+<p><a href="http://iblqdgha.dhsiaj.gq/?from=852" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
@@ -77,22 +77,22 @@
 <p><strong>【公告】代理大升级，全程SSL加密传送，支持youtube视频、新唐人视频、大纪元视频播放。。。</strong></p>
 <p>聚缘阁代理安卓版已经升级,浏览网页特别快，视频播放支持全屏。。。<a href="https://github.com/dtw9/9/raw/master/201861502.apk">点击下载</a></p>
 <p>
-<a id="user-content-聚缘阁代理一" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%B8%80" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://48a-75f.ju89.heart2h.com/" rel="nofollow">聚缘阁代理一</a>
+<a id="user-content-聚缘阁代理一" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%B8%80" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://48a-735f.ju89.heart2h.com/" rel="nofollow">聚缘阁代理一</a>
 </p>
 <p>
-<a id="user-content-聚缘阁代理二" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%BA%8C" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://5ay-if5a.gae.geass.tv/" rel="nofollow">聚缘阁代理二</a>
+<a id="user-content-聚缘阁代理二" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%BA%8C" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://5ay-if3a.gae.geass.tv/" rel="nofollow">聚缘阁代理二</a>
 </p>
 <p>
-<a id="user-content-聚缘阁代理三" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%B8%89" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://5aax-5t.tre.iloile.com/" rel="nofollow">聚缘阁代理三</a>
+<a id="user-content-聚缘阁代理三" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%B8%89" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://5aax-53t.tre.iloile.com/" rel="nofollow">聚缘阁代理三</a>
 </p>
 <p>
-<a id="user-content-聚缘阁代理四" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E5%9B%9B" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://5-85aaa.vsam.corriee.org/" rel="nofollow">聚缘阁代理四</a>
+<a id="user-content-聚缘阁代理四" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E5%9B%9B" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://5-853a.vsam.corriee.org/" rel="nofollow">聚缘阁代理四</a>
 </p>
 <p>
-<a id="user-content-聚缘阁代理五" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%BA%94" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://5ya7-xf55xt.swqm.cesedria.com/" rel="nofollow">聚缘阁代理五</a>
+<a id="user-content-聚缘阁代理五" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E4%BA%94" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://5ya7-xf3xt.swqm.cesedria.com/" rel="nofollow">聚缘阁代理五</a>
 </p>
 <p>
-<a id="user-content-新唐人在线播放" class="anchor" href="#%E6%96%B0%E5%94%90%E4%BA%BA%E5%9C%A8%E7%BA%BF%E6%92%AD%E6%94%BE" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http:/55a4j-ka5.tre.iloile.com/xtr.html">新唐人在线播放</a>
+<a id="user-content-新唐人在线播放" class="anchor" href="#%E6%96%B0%E5%94%90%E4%BA%BA%E5%9C%A8%E7%BA%BF%E6%92%AD%E6%94%BE" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="http://55a4j-35.tre.iloile.com/xtr.html" rel="nofollow">新唐人在线播放</a>
 </p>
 <p>
 <a id="user-content-聚缘阁代理安卓201861502版本" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E4%BB%A3%E7%90%86%E5%AE%89%E5%8D%93201861502%E7%89%88%E6%9C%AC" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://github.com/dtw9/9/raw/master/201861502.apk">聚缘阁代理安卓201861502版本</a><img src="https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif" alt="">
