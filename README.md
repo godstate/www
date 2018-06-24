@@ -2,9 +2,9 @@
 <tr>
 <td>
 <img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG"><br>
-<strong>可向 fr45tr@gmail.com 索取推广网址。如页面出错，刷新一下。</strong><br>
-<strong>微信如提示停止访问，点击右上角选择浏览器打开</strong><br>
-<p><strong>国内浏览器如打不开，用IE，Firefox，Chrome打开</strong></p>
+<strong>可向 fr45tr@gmail.com 索取推广网址。如果页面出错，刷新一下。</strong><br>
+<strong>如果微信提示停止访问，点击右上角选择浏览器打开</strong><br>
+<p><strong>如果国内浏览器打不开，用IE，Firefox，Chrome打开</strong></p>
 <hr>
 <h3>
 <p><strong>简易网址</strong></p>
@@ -23,10 +23,10 @@
       <a href="http://61.228.184.145/1" rel="nofollow">入口</a>
       <a href="https://d3cgm8ac1vg9rg.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/RrtlJHi" rel="nofollow">入口</a>
-      <a href="http://uegqfhoh.behjsd.gq/5" rel="nofollow">入口</a>
+      <a href="http://wywpd.yspjgjq.gq/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://uegqfhoh.behjsd.gq/7" rel="nofollow">入口</a>
-      <a href="http://uegqfhoh.behjsd.gq/8" rel="nofollow">入口</a>
+      <a href="http://wywpd.yspjgjq.gq/7" rel="nofollow">入口</a>
+      <a href="http://wywpd.yspjgjq.gq/8" rel="nofollow">入口</a>
       <a href="https://d3cgm8ac1vg9rg.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
@@ -52,7 +52,7 @@
 <p><a href="http://t.cn/RrtlJ0l">三退自救1</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RrtlJJN" rel="nofollow">网门视频1</a></p>
-<p><a href="http://jddnjua.qicozx.ga/?from=852" rel="nofollow">网门视频2</a></p>
+<p><a href="http://afdqf.raiyvno.gq/?from=852" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
