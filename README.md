@@ -2,7 +2,7 @@
 <tr>
 <td>
 <img src="https://raw.githubusercontent.com/szzd1/2/master/6.JPG"><br>
-<strong>可向 fr45tr@gmail.com 索取推广网址。如页面出错，刷新一下。</strong>
+<strong>可向 fr45tr@gmail.com 索取推广网址。如页面出错，刷新一下。</strong><br>
 <strong>微信如提示停止访问该，点击右上角选择浏览器打开</strong><br>
 <p><strong>国内浏览器如打不开，用IE，Firefox，Chrome打开</strong></p>
 <hr>
@@ -23,10 +23,10 @@
       <a href="http://219.85.105.8/1" rel="nofollow">入口</a>
       <a href="https://d3cgm8ac1vg9rg.cloudfront.net/3" rel="nofollow">入口</a><br>
       <a href="http://t.cn/Rr569kJ" rel="nofollow">入口</a>
-      <a href="http://cnhqla.psvdhgqa.ml/5" rel="nofollow">入口</a>
+      <a href="http://stlltyik.gmarenaq.ga/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://cnhqla.psvdhgqa.ml/7" rel="nofollow">入口</a>
-      <a href="http://cnhqla.psvdhgqa.ml/8" rel="nofollow">入口</a>
+      <a href="http://stlltyik.gmarenaq.ga/7" rel="nofollow">入口</a>
+      <a href="http://stlltyik.gmarenaq.ga/8" rel="nofollow">入口</a>
       <a href="https://d3cgm8ac1vg9rg.cloudfront.net/9" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
@@ -52,7 +52,7 @@
 <p><a href="http://t.cn/Rr5691A">三退自救1</a></p>
 <p><a href="https://d3cgm8ac1vg9rg.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/Rr569HC" rel="nofollow">网门视频1</a></p>
-<p><a href="http://vdbbxdy.fyqta.gq/?from=852" rel="nofollow">网门视频2</a></p>
+<p><a href="http://oykighh.axbiyssi.ml/?from=852" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
