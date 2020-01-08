@@ -7,19 +7,20 @@
 <a name="7" id="7" target="_blank"></a> <span id="7"></span>
 <a name="8" id="8" target="_blank"></a> <span id="8"></span>
 <img src="https://raw.githubusercontent.com/lduuv275/www/master/t/fq1.jpg"><br>
+
 <p><strong><a href="https://github.com/lduuv275/ntdtv/blob/master/gb/contribute.md#1">新唐人电视台投稿</a>  <a href="https://github.com/lduuv275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>，本平台固定短网址 https://git.io/*8</strong></p>
 <p><strong>个别浏览器打不开或没显示图片，请刷新一下，推荐用海外浏览器打开本平台</strong></p>
-
 <h1><p><strong>下载一键翻墙软件</strong></p></h1>
-<p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master/extras/SzzdOgate.apk?fldfh2">神州正道（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
-<img src="https://raw.githubusercontent.com/lduuv275/www/master/t/sz.jpg"><br>
-<p><a href="https://raw.githubusercontent.com/oGate2/Up/master/oGate.apk?fldfh2">网门（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
-<p><a href="https://raw.githubusercontent.com/wujieliulan/download/master/um.apk?raw=true">无界浏览（手机版）</a></p>
-<p><a href="https://raw.githubusercontent.com/freegate-release/website/gh-pages/files/fgp.zip?fldfh2">自由门（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
-<p><a href="https://raw.githubusercontent.com/wujieliulan/download/master/u.zip?fldfh2">无界浏览（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
-<p><a href="https://raw.githubusercontent.com/lduuv275/www/master/szzd/iPPOTV.zip">爱博电视（电脑版）</a></p>
-<p><a href="https://raw.githubusercontent.com/lduuv275/www/master/szzd/szzdogate.rar?fldfh2">神州正道（网页版）</a></p>
-<p><a href="https://raw.githubusercontent.com/SzzdOgate/update/master/extras/SzzdOgateTV.apk?fldfh2">神州正道安卓（电视机顶盒版）</a></p>
+<p><a href="https://github.com/SzzdOgate/update/raw/master/extras/SzzdOgate.apk?fldfh2">神州正道（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
+<img src="https://gitlab.com/szzdlab/www/raw/master/t/sz.jpg"><br>
+<p><a href="https://gitlab.com/szzdlab/www/raw/master/szzd/oGate.apk?fldfh2">网门（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
+<p><a href="https://gitlab.com/szzdlab/www/raw/master/szzd/um.apk?raw=true">无界浏览（手机版）</a></p>
+<p><a href="https://gitlab.com/szzdlab/www/raw/master/szzd/fgp.zip?fldfh2">自由门（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
+<p><a href="https://gitlab.com/szzdlab/www/raw/master/szzd/u.zip?fldfh2">无界浏览（电脑版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
+<p><a href="https://gitlab.com/szzdlab/www/raw/master/szzd/iPPOTV.zip">爱博电视（电脑版）</a></p>
+<p><a href="https://gitlab.com/szzdlab/www/raw/master/szzd/szzdogate.rar?fldfh2">神州正道（网页版）</a></p>
+<p><a href="https://gitlab.com/szzdlab/www/raw/master/szzd/SzzdOgateTV.apk?fldfh2">神州正道安卓（电视机顶盒版）</a></p>
+
 <hr>
 <h1><p><strong>国内看不到的新闻同步</strong></p></h1>
 <p><a target="_blank" href="https://github.com/lduuv275/djy/blob/master/gb/nsc413.md?flntdtv#1">大纪元大陆时事</a></p>
