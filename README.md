@@ -92,7 +92,7 @@
 <hr>
 <h1><p><strong>数点梅花天地春</strong></p></h1>
 <img src="https://raw.githubusercontent.com/jtswrk284/www/master/t/01.jpg">
-<h1><strong><a href="https://git.io/fjHpJ" rel="nofollow">远离罪恶，大灾难，大瘟疫前的自救！点击这里，退出中共</a></strong></h1><br>
+<h1><strong><a href="https://git.io/fjHpJ" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/jtswrk284/www/master/t/03.jpg"><br>
