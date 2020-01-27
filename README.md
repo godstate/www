@@ -90,9 +90,9 @@
 或被发往各国商务部，作为该企业是否参与中共情报和间谍活动的依据。<br>
 希望各企业,遵守宪法,秉承道义良知,不要阻止弱势群体的声音。<a target="_blank" href="https://github.com/jtswrk284/djy/blob/master/gb/rq.md?fldfjtswrk284#1">企业的前车之鉴</a>
 <hr>
-<h2><p><strong>数点梅花天地春</strong></p></h1>
+<h1><p><strong>数点梅花天地春</strong></p></h1>
 <img src="https://raw.githubusercontent.com/jtswrk284/www/master/t/01.jpg">
-<h1><strong><a href="https://git.io/fjHpJ" rel="nofollow">远离罪恶，大灾难,大瘟疫前的自救！点击这里，退出中共</a></strong></h2><br>
+<h1><strong><a href="https://git.io/fjHpJ" rel="nofollow">远离罪恶，大灾难,大瘟疫前的自救！</a></strong></h1><br><h1><strong><a href="https://git.io/fjHpJ" rel="nofollow">点击这里，退出中共</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/jtswrk284/www/master/t/03.jpg"><br>
